@@ -1,4 +1,4 @@
-## # Data Analyst | Turning Data into Decisions 📊
+## Welcome to my corner of GitHub 🚀
 
 
 
